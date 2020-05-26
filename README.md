@@ -2,4 +2,4 @@
 
 hello homosapiens!
 
-Atul here ,i'm pursuinhg computer science engineering from IP University
+Atul here!! I'm pursuing computer science engineering from IP University
